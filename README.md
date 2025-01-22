@@ -12,4 +12,4 @@ Beyond all the tech stuff, I work with clients at every stage of the design proc
 
 Sooo... wanna collaborate? Wanna free consultation? Wanna check out my work? 
 
-Check out my site! 👉 [www.michaelhyland.dev](https://www.michaelhyland.dev)˝
+**Check out my site! 👉 [www.michaelhyland.dev](https://www.michaelhyland.dev)**
